@@ -1,6 +1,6 @@
 ### Hi there 👋, I am Amaan Malek
 - 📫 How to reach me: \
-      IG - @0chillsamn \ https://www.instagram.com/0chillsamn?igsh=Z2VxMTlxMm4xeHht
+      IG - @0chillsamn (https://www.instagram.com/0chillsamn?igsh=Z2VxMTlxMm4xeHht)
       LinkedIn - www.linkedin.com/in/amaan-malek \
       X(Twitter) - (https://x.com/asap_mn)
 <!--
