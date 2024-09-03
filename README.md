@@ -1,7 +1,7 @@
 ### Hi there 👋, I am Amaan Malek
 - 📫 How to reach me: \
       IG - @0chillsamn (https://www.instagram.com/0chillsamn?igsh=Z2VxMTlxMm4xeHht) \
-      LinkedIn - www.linkedin.com/in/amaan-malek \
+      LinkedIn - (www.linkedin.com/in/amaan-malek) \
       X(Twitter) - (https://x.com/asap_mn)
 <!--
 **YashWadhvani/YashWadhvani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
